@@ -1,2 +1,2 @@
 # Profile
-大可不必了解我，看我笑话就好~ 0.0 ~
+> U do not need to konw me,just regard me as a joker ~0.0~
